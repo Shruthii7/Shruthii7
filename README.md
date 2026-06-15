@@ -1,5 +1,5 @@
-# Hello :)
-Alige Shruthi here.
+# Hello, Alige Shruthi here.
+
 
 MSc Chemistry Student at NIT Surat
 
